@@ -1,1 +1,1 @@
-# dekopinda-gianyar
+# dekopinda-karanganyar
